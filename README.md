@@ -11,4 +11,5 @@ meu nome é Grazielli Cortez
 
 grazicortez12@gmail.com 
 
-![].
+
+![image](https://github.com/Graziicortez12/graziicortez12/assets/171927799/cb9b051e-2724-4edb-be01-9850d78d7e64)
